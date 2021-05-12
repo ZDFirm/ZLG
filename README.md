@@ -22,7 +22,7 @@ The personal injury lawyers at Zinda Law Group can help you seek the full and fa
 
 
 
-Read more: https://www.zdfirm.com/
+Read more: [https://www.zdfirm.com/] (https://www.zdfirm.com)
 
 # About Zinda Law Group
 
