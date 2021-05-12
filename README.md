@@ -9,7 +9,7 @@ Our firm also believes that an injury victim should never have to worry about th
 To learn more about how our firm can benefit you, call Zinda Law Group today at (888) 988-7063 for a 100% free consultation with our personal injury lawyers. 
 
 
-Read more: https://www.zdfirm.com/
+Read more: [ZDFirm Homepage](https://www.zdfirm.com)
 
 ## Personal Injury Attorneys With Experience & Resources That Work For You
 Zinda Law Group is a nationally recognized personal injury law firm that serves clients across Texas, Colorado, Arizona, and New Mexico and throughout the United States.
@@ -22,7 +22,7 @@ The personal injury lawyers at Zinda Law Group can help you seek the full and fa
 
 
 
-Read more: [https://www.zdfirm.com/] (https://www.zdfirm.com)
+Read more: [ZDFirm Homepage](https://www.zdfirm.com)
 
 # About Zinda Law Group
 
@@ -36,4 +36,4 @@ Read more: [https://www.zdfirm.com/] (https://www.zdfirm.com)
 - Gas explosions
 
 
-Read more: https://www.zdfirm.com/about/
+Read more: [ZDFirm About](https://www.zdfirm.com/about/)
