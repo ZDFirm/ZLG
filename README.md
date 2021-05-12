@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+# Zinda Law Group
 
 If you or a loved one has been injured in an accident, the personal injury lawyers at Zinda Law Group can help. Injury victims are often left with not only physical pain but also financial and emotional burdens that can take months or even years to overcome. We are here to ensure you won’t have to face this difficult time alone.
 
@@ -11,7 +11,7 @@ To learn more about how our firm can benefit you, call Zinda Law Group today at 
 
 Read more: https://www.zdfirm.com/
 
-# Personal Injury Attorneys With Experience & Resources That Work For You
+## Personal Injury Attorneys With Experience & Resources That Work For You
 Zinda Law Group is a nationally recognized personal injury law firm that serves clients across Texas, Colorado, Arizona, and New Mexico and throughout the United States.
 
 Our accident lawyers have extensive experience handling a wide range of personal injury claims, including car accidents, 18-wheeler wrecks, wrongful death, motorcycle accidents, dog bites and animal attacks, drunk driver crashes, brain injury, burn injuries, spinal cord injuries, scarring and disfigurement, distracted driving accidents, uninsured motorist accidents, hit and run accidents, parking lot accidents, seat belt failure, ski and snowboard accidents, product liability (defective product injuries), boat accidents, birth injuries, pedestrian injuries, electric scooter accidents, medical malpractice, workplace injuries, wet and slippery floor injuries, falling merchandise and premises liability.
